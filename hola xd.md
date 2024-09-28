@@ -1,0 +1,1 @@
+Destornillador marca Philips de resina epóxica con acabados de franja amarilla punta plana de 1 cm a base de hierro
